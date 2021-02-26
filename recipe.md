@@ -1,0 +1,1 @@
+First take a fresh pair of bread.Then caut some vegetables like tomato,onion and capsicum.Then mix them with vegetables and sausages.Then toast them on a toaster. That's it.Your YUMMY SANDWHICH IS READY!!!!!
